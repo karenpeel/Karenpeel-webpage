@@ -1,1 +1,1 @@
-# Karenpeel-webpage
+Karen Peel is a Senior Lecturer in the School of Education at the University of Southern Queensland, Australia. Her research interests include the implementation of practices for effective teaching and self-regulated learning, classrooms cultures that support positive behaviour, and contemporary issues in education that impact outcomes for students and educators
